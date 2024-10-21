@@ -1,0 +1,7 @@
+- 👋 Hi, I’m andrew (andy) byrne
+- 👀 I’m interested in TMC, DR, MLP, Epic the musical!
+- 🌱 I’m currently learning how to animate with turbowarp! (A different version of scratch!)
+- 💞️ I’m looking to collaborate on MAPs/MEPs
+- 📫 How to reach me Through discord! iro_the_biro
+- 😄 Pronouns: they/them or it/its
+- ⚡ Fun fact: I'm diagnosed autistic, also an animator and artist!
